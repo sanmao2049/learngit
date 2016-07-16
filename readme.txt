@@ -6,6 +6,13 @@ Creating a new branch is quick.
 Creating a new branch is quick AND simple.
 
 
+i am not crazy!
+
+
 i am done
 
 i am develping now!
+
+are you crazy?
+
+i am deving
